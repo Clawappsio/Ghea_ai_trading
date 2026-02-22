@@ -1,0 +1,1 @@
+# Ghea_ai_trading
